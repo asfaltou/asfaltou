@@ -9,5 +9,13 @@ oi meu nome e rafa e eu desafio vc a sair de um nerd fofo e ir para um homaom, o
 
 
 
+
+
+
+
+
+
+
+
 ![](https://media.tenor.com/FzTZEG_jhskAAAAd/zoio.gif).
 
