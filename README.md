@@ -1,4 +1,4 @@
-oi meu nome e rafa e eu desafio vc a sair de um nerd fofo e ir para um homaom, oi🤓
+oi meu nome e rafa e eu desafio vc a sair de um nerd fofo e ir para um homâo, oi🤓
 
 @raffstart
 
